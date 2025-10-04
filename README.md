@@ -1,1 +1,2 @@
-# absolute-regression
+# Absolute Regression
+« S'il vous plaît, renvoyez-moi dans le passé. » S'il ne peut pas tuer cette personne à cette époque, il lui suffit de retourner dans le passé. L'homme utilisa la « Grande Technique de Régression » pour traverser le temps, retournant dans le passé qu'il désirait tant. L'« épéiste hors pair » qui a tout perdu, sa famille, ses amis et sa vie. C'est la première étape de sa vengeance.
